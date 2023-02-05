@@ -1,5 +1,5 @@
 # Get good get GameSense - Now Free with CrackedSense
-![CrackedSense Banner](https://crackedsense.xyz/Banner.png)
+![CrackedSense Banner](https://crackedsense.xyz/WideBanner.png)
 ## We cracked GameSense. Now everyone is able to master Counter Strike- Enjoy <3
 ### What is skeet.cc and crackedsense?
 
