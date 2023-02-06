@@ -23,4 +23,3 @@ Gamesense.pub also known as Skeet.cc, is an invite-only paid cheat for Counter-S
 ![CrackedSense Menu](https://crackedsense.xyz/Loader.png)
 ---
 ![CrackedSense Banner](https://crackedsense.xyz/WideBanner.png)
- 
