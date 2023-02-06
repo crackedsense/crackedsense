@@ -1,11 +1,13 @@
-# Get good get GameSense - Now Free with CrackedSense
+
 ![CrackedSense Banner](https://crackedsense.xyz/WideBanner.png)
+---
+# Get good get GameSense - Now Free with CrackedSense
 ## We cracked GameSense. Now everyone is able to master Counter Strike Enjoy <3
 ### What is skeet.cc and crackedsense?
 
 Gamesense.pub also known as Skeet.cc, is an invite-only paid cheat for Counter-Strike: Global Offensive, is now accessible to everyone due to the release of the crack known as "crackedsense". You can join our Discord server for announcements, vouches, support and more.
-
-### **[Download CrackedSense Free](https://crackedsense.xyz)**
+|[Website](https://crackedsense.xyz)|[Download](https://crackedsense.xyz/download.html)|[Donate Crypto](https://crackedsense.xyz/donate.html)|
+|:------------- |:-------------:|:-------------:|
 
 ### Socials
 
@@ -19,5 +21,5 @@ Gamesense.pub also known as Skeet.cc, is an invite-only paid cheat for Counter-S
 
 ### Loader
 ![CrackedSense Menu](https://crackedsense.xyz/Loader.png)
-
+---
 ![CrackedSense Banner](https://crackedsense.xyz/WideBanner.png)
